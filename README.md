@@ -9,7 +9,7 @@
     </div>
 
    <div align="center">
-𝗿𝗼𝗺𝗲𝗼   rosario  purryn  qiu  or  even  𝙨𝙖𝙥𝙨 !
+𝗿𝗼𝗺𝗲𝗼　rosario　purryn　qiu　or　even　𝙨𝙖𝙥𝙨 !
    </div>
 
  <div align="center">
@@ -17,5 +17,5 @@
  </div>
  
 <div align="center">
-sign my ata ^__^
+sign　my　ata　^__^
 </div>
