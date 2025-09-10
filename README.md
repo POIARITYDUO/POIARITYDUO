@@ -13,7 +13,7 @@
    </div>
    <div align="center">
    mugm's　𝗯𝗶𝗴𝗴𝗲𝘀𝘁　fan 
-   </div>div>
+   </div>
 
  <div align="center">
 ﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌
